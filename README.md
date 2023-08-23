@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @emanuelbaget25
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...e yrye
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...d423yuyufjferre
 htygn t rbrgjfg uetyer s jntyjntyert htherh
